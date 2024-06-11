@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning anything associated with programming
 - 💞️ I’m looking to collaborate with large tech indusries oneday
 - 📫 How to reach me: louiznet.co@gmail.com
-- ⚡ subscribe youtube: louiznet
-- ⚡ follow instagram: louiznet
+- ⚡ subscribe youtube.com: louiznet
+- ⚡ follow instagram.com: louiznet
 - ⚡ free fire: louiznet
 - ⚡ anyothersocial media: louiznet
 
